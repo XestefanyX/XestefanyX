@@ -5,12 +5,12 @@
 
  Aqui estão algumas ideias para você começar:
 
-- 🔭 Atualmente estou estudando no colegio estadual padre claudio morelli
-- 🌱 Atualmente estou aprendendo varias coisas
-- 👯 Procuro colaborar em 
-- 🤔 Estou procurando ajuda com ...
-- 💬 Pergunte-me sobre ...
+- 🔭 Atualmente estou estudando; no colegio estadual padre claudio morelli
+- 🌱 Atualmente estou aprendendo; varias coisas
+- 👯 Procuro colaborar; não sei
+- 🤔 Estou procurando ajuda com; absolutamente com nada 
+- 💬 Pergunte-me sobre; qualquer coisa
 -📫 Como entrar em contato comigo: XestefanyX 
-- 😄 Pronomes: ...
-- ⚡ Curiosidade: ...
+- 😄 Pronomes: La bebecita rhlm
+- ⚡ Curiosidade: La curiosidad mato el gato...
 -->
