@@ -14,3 +14,5 @@
 - 😄 Pronomes: La bebecita rhlm
 - ⚡ Curiosidade: La curiosidad mato el gato...
 -->
+
+![](https://media1.tenor.com/m/6YIyIujuis4AAAAd/qui%C3%A9n-carajo-eres-t%C3%BA-anuel-aa.gif)
